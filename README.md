@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @PhantomStorm0
-- 📫 My about link: http://phantomstorm.cf/
+- 📫 My about link: http://phantomstorm.xyz/
